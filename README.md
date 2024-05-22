@@ -10,9 +10,6 @@ Meu nome é Matheus Gabriel
 
 
 
- ![](![image](https://github.com/MhateusG/MhateusG/assets/170426032/2ba58db4-27cc-4751-bf43-81309f835de2)
-)
 
+![](https://media1.tenor.com/m/ZhHZ3JH0VOkAAAAC/jorels-brother-irmao-do-jorel.gif)
 
-
- 
