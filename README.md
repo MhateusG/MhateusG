@@ -2,7 +2,7 @@
 
 Meu nome é Matheus Gabriel
 
-- Estou estudando no Alura (sou obrigado)
+- Estou estudando no Alur (sou obrigado)
 
  ### Você entrar em contato comigo 📪
 
